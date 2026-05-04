@@ -13,3 +13,4 @@ Store leftover pancakes in an airtight container in the fridge for about a week.
 
 To reheat pancakes, you have a few options: warm a batch in a 350 degrees F oven (covered) for 8 to 10 minutes, microwave individual pancakes in 20 to 30 second bursts with a damp paper towel, or reheat them in a skillet over medium-low heat for 30–60 seconds per side until warmed through.
 
+Guten Tag - Hier ist die Änderung #1
